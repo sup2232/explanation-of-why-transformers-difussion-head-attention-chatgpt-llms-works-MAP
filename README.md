@@ -1,4 +1,4 @@
-x.com/@kasplatch
+https://x.com/@kasplatch
 
 https://x.com/kasplatch/status/1975591305804657032
 
